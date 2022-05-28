@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @CNCdood
+- 👀 I’m interested in CNC Machining and 3D printing
+- 🌱 I’m currently learning Fusion360 and MasterCAM2022
+- 💞️ I’m looking to collaborate on a sick beat
+- 📫 How to reach me: drop something here 
